@@ -6,3 +6,6 @@
 ![image](https://github.com/ElielmaSilva/Informatica/assets/162644582/ea343a6d-3fbf-47f2-96e6-9f8a760c05ce)
 ![image](https://github.com/ElielmaSilva/Informatica/assets/162644582/1960c55f-6ee9-4cb3-a833-9197f8f34f7f)
 ![image](https://github.com/ElielmaSilva/Informatica/assets/162644582/8805ac5d-b0bd-4f6b-9be4-9f7b14f97615)
+![image](https://github.com/ElielmaSilva/Informatica/assets/162644582/86ffcebb-dc5d-48af-b5fe-c7d4e0049bc3)
+![image](https://github.com/ElielmaSilva/Informatica/assets/162644582/ae21d144-e64c-47b0-a3dd-b32300a7e1fd)
+![image](https://github.com/ElielmaSilva/Informatica/assets/162644582/d75c20d4-4511-4d5a-ac4d-79886365a5fa)
